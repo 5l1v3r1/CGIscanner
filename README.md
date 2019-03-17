@@ -17,9 +17,6 @@ CGI scanner
                                                     ▒    
                   ... I WILL NEVER STOP LIVING THIS WAY ...
                         -ENJOY THE POWER OF MY WORK- 
-                            -AZIZJON[AT]GMAIL.COM-
-                             -TWITTER: @AZIZJONM-
-
              
 
 scanning options
